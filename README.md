@@ -9,7 +9,7 @@ The easiest and quickest way that you can contribute is by **downloading the gam
 
 If you feel like contributing more to the cause, getting to the levels of 4, 8, 15, 20, 25, 28 are each a goal to achieve! 
 
-[                                         .                                      ] **23?** it appears they removed this goal [      .       ]
+[                                         .                                       **23?** it appears they removed this goal       .       ]
 
 **Reaching level 20 means Pristine gets subs gifted to her channel!** :D
 
